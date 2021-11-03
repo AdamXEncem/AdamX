@@ -1,4 +1,4 @@
--  Hi, I’m SecrxtH4xor A.k.a Amm
--  I’m Founder PsychoSecExploit
+-  Hi, I’m AdamX (Malaysia People)
+-  I’m Founder PsychoSecurityExploit
 -  It People .
 
